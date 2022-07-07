@@ -1,1 +1,0 @@
-> Freedom ultimately means the right of other people to do things that you do not approve of. Thomas Sowell
